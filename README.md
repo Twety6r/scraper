@@ -6,3 +6,4 @@ Dark-leon priv dızlayıcı
 
 
 Telegram : ```t.me/tweety6r```
++90 553 179 71 78için
